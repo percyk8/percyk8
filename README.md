@@ -12,4 +12,4 @@ I also have a great passion for:
 - Crocheting
 - Video games
 - Painting
-- [Cicero’s * *Letters to Atticus* *](https://en.wikipedia.org/wiki/Epistulae_ad_Atticum)
+- [Cicero’s *Letters to Atticus*](https://en.wikipedia.org/wiki/Epistulae_ad_Atticum)
